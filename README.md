@@ -8,9 +8,7 @@ https://www.coursera.org/programs/chandigarh-university-faculty-learning-program
 
 MY ALL CERTIFCATES LINK
 
-https://www.coursera.org/programs/cse-sem-8-skv4d?currentTab=MY_LEARNING&myLearningTab=COMPLETED
 
-AWSLabsUser-xjvXums2hyjCp3cr6D72ZT/c356c250-2795-4c4f-83f1-47c4b44c7666
 
 https://www.youtube.com/watch?v=PkKi63f2cJs
 
